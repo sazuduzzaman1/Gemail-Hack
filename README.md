@@ -26,5 +26,3 @@ https://www.youtube.com/channel/UCCgy7i_A5yhAEdY86rPOinA
 ### Video Tutorial
 
 https://www.youtube.com/watch?v=CZwNK6fOqEI&t=37s
-marufahmed52566@gmail.com 
-password 
